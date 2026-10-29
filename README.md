@@ -1,2 +1,2 @@
-# Ivan_Beneda
-Multimedialne systemy, 8.10.2026
+# Ivan Beneda
+Multimedialne systemy, 08.10.2026
